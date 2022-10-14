@@ -1,5 +1,5 @@
 # conflit
-Je t’aime, ô ma Patrie,
+okokokokokokokokokookotrie,
 Pour tes monts neigeux et fiers,
 Pour la chanson jolie
 De tes fleuves toujours clairs.
